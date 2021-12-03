@@ -1,6 +1,6 @@
 
 [gfg](www.geeksforgeeks.com)
-![cod](https://imgs.callofduty.com/content/dam/atvi/callofduty/cod-touchui/kronos/common/social-share/social-share-image.jpg)
+![cod](https://wallpaperaccess.com/full/1895111.jpg)
 
 s.no|name
 ----|-----
